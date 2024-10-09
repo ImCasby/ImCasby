@@ -1,16 +1,11 @@
-## Hi there 👋
+✩ Im Casby :D
+✩ Im being myself :>
+✩ Bday: 26 of November 🎉
+✩ he/him 🧍‍♂️
+✩ hobbies: gaming, coding um basically everything tech related :>
+✩ likes:  um anime, bolleyball, fps games um help idk
+✩ Emoticons are funny :p :D
+✩ CATS RHAAAAAAAAAA
+✩ ISTP-T 
 
-<!--
-**ImCasby/ImCasby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://imcasby.carrd.co/
